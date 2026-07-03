@@ -1,4 +1,4 @@
-#  
+#  escape tsunami for brainrots exclusive Script is the best escape tsunami for brainrots Script, featuring unlimited stamina and infinite resources.
 
 
 
